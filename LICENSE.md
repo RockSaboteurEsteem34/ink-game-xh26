@@ -1,4 +1,4 @@
-#  
+#  automatic Scripts for ink game offers the most advanced ink game Script, with aimbot and auto-sell. Perfect for dominating any match.
 
 
 
